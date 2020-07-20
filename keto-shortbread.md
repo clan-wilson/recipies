@@ -10,8 +10,7 @@ This low carb shortbread cookie recipe makes 16 cookies, 1 serve is equal to 1 c
 ## **Keto Shortbread Cookies Ingredients**
 
 - 2 cups of Almond Flour
-- ⅓ cup of
-- Erythritol
+- ⅓ cup of Erythritol
 - 1 pinch of Salt
 - 1 teaspoon of Vanilla Extract
 - ½ cup of Unsalted Butter softened
