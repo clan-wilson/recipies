@@ -1,4 +1,4 @@
-# Ket0 Shortbread
+# Keto Shortbread
 
 This low carb shortbread cookie recipe makes 16 cookies, 1 serve is equal to 1 cookie.
 
