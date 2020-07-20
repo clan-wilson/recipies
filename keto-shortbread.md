@@ -1,8 +1,5 @@
-**Not only are these low carb Keto Shortbread Cookies recipe delicious. They make the best crumbly base for Low-Carb, no-bake pie recipes.**
+# Kety Shortbread
 
-Keto shortbread cookies are a great snack, staying low carb when enjoying them couldn’t be easier.
-
-> Use our Buttery Keto Shortbread Cookies as a Delicious Cake or Pie Base
 
 One batch of these keto cookies make the perfect base for our [Low Carb Jello Chunk Cheesecake](https://www.myketokitchen.com/keto-recipes/no-bake-sugar-free-low-carb-jello-cheesecake/).
 
