@@ -1,9 +1,4 @@
-# Kety Shortbread
-
-
-One batch of these keto cookies make the perfect base for our [Low Carb Jello Chunk Cheesecake](https://www.myketokitchen.com/keto-recipes/no-bake-sugar-free-low-carb-jello-cheesecake/).
-
-Make yourself a double batch so you’ve got a tasty [keto snack](https://www.myketokitchen.com/keto-diet/keto-snacks-list-ketogenic-diet/) to eat while you wait.
+# Ket0 Shortbread
 
 This low carb shortbread cookie recipe makes 16 cookies, 1 serve is equal to 1 cookie.
 
